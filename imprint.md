@@ -7,12 +7,13 @@ permalink: /imprint/
 Dieses Impressum gilt für diese Webseite als auch alle Social Media Präsenzen von Belinda Zahra alias Happiness Cast, wie:
 
 [YouTube](https://www.youtube.com/channel/UCI_N-v-QeOP5PiSvzj4qTuQ)
+
 Angaben gemäß des § 5 TMG (Telemediengesetz) + für journalistisch-redaktionelle Inhalte, gemäß § 55 Abs. 2 RstV (Rundfunkstaatsvertrag).
 
 ### Betreiber + Herausgeber:
 
-Belinda Zahra
-Smaragdstraße 10
+Belinda Zahra  
+Smaragdstraße 10  
 80995 München
 
 Allgemeiner Kontakt, Businessanfragen, Kooperationen & Co: [happinesscast@gmail.com](mailto:happinesscast@gmail.com)
