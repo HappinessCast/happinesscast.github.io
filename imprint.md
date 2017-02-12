@@ -6,7 +6,8 @@ permalink: /imprint/
 
 Dieses Impressum gilt für diese Webseite als auch alle Social Media Präsenzen von Belinda Zahra alias Happiness Cast, wie:
 
-[YouTube](https://www.youtube.com/channel/UCI_N-v-QeOP5PiSvzj4qTuQ)
+[YouTube](https://www.youtube.com/channel/UCI_N-v-QeOP5PiSvzj4qTuQ)  
+[Instagram](https://www.instagram.com/happinesscast/)
 
 Angaben gemäß des § 5 TMG (Telemediengesetz) + für journalistisch-redaktionelle Inhalte, gemäß § 55 Abs. 2 RstV (Rundfunkstaatsvertrag).
 
@@ -43,7 +44,7 @@ Für den Inhalt von fremden Webseiten und fremden Social Media Präsenzen, auf d
 
 Sollten Ihnen unerlaubte oder jugendgefährdende Inhalte auf Belinda Zahras Social Media Präsenzen auffallen, informieren Sie Belinda Zahra bitte über die oben genannte E-Mail-Adresse. Sie wird dann schnellstmöglich reagieren und entsprechende Anpassungen vornehmen.
 
-Wenn Sie einem Link zu einer weiteren Social Media Präsenz (wie z.B. YouTube) folgen, werden Sie auf die entsprechende Seite des sozialen Netzwerkes weitergeleitet. Ihr Browser wird somit eine direkte Verbindung mit den entsprechenden Servern herstellen. Die Anbieter dieser sozialen Netzwerke und die entsprechenden Webhoster erhalten dadurch Informationen von Ihnen. Wenn Sie zeitgleich mit Ihren Nutzerdaten dieser sozialen Netzwerke angemeldet sind, werden zusätzliche Daten gespeichert, um Ihr Benutzerkonto zuordnen zu können. Belinda Zahra hat keinerlei Kenntnis vom Inhalt der übermittelten und gespeicherten Daten, sowie deren Nutzung. Bitte informieren Sie sich über die Datenschutzerklärungen der jeweiligen Anbieter. Wenn Sie eine solche Datenübermittlung verhindern möchten, müssen Sie sich vor dem Besuch dieser Social Media Präsenzen bei Ihren entsprechenden Accounts ausloggen.
+Wenn Sie einem Link zu einer weiteren Social Media Präsenz (wie z.B. YouTube und Instagram) folgen, werden Sie auf die entsprechende Seite des sozialen Netzwerkes weitergeleitet. Ihr Browser wird somit eine direkte Verbindung mit den entsprechenden Servern herstellen. Die Anbieter dieser sozialen Netzwerke und die entsprechenden Webhoster erhalten dadurch Informationen von Ihnen. Wenn Sie zeitgleich mit Ihren Nutzerdaten dieser sozialen Netzwerke angemeldet sind, werden zusätzliche Daten gespeichert, um Ihr Benutzerkonto zuordnen zu können. Belinda Zahra hat keinerlei Kenntnis vom Inhalt der übermittelten und gespeicherten Daten, sowie deren Nutzung. Bitte informieren Sie sich über die Datenschutzerklärungen der jeweiligen Anbieter. Wenn Sie eine solche Datenübermittlung verhindern möchten, müssen Sie sich vor dem Besuch dieser Social Media Präsenzen bei Ihren entsprechenden Accounts ausloggen.
 
 ### Affiliate-Partnerlinks:
 
